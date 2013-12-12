@@ -1,0 +1,4 @@
+666
+===
+
+Cryptocurrency coin
